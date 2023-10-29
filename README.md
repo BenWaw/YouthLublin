@@ -1,5 +1,6 @@
 # YouthLublin
 wiki z informacjami oraz polecanymi rzeczami od Youth Lublin
+
  *Kim jesteśmy?*
 Youth Lublin to grupa znajomych którzy poznali się w kościele zielonoświątkowym (czyli takim nie nudnym, gdzie rzeczywiście chcemy podążać za wartościami biblijnymi) Charisma w Lublinie. Na początku byliśmy grupa młodzieżówkową, lecz od 2022 roku postamnowiliśmy się otworzyć na ludzi z zewnątrz i pokazać światu że młodzeż może się bawić bez alkoholu oraz pokazać przykład wsparcia między przyjaciółmi.
 Mamy ze sobą bardzo ścisłą relację i ciebie też do niej zaprawszamy, nie wykluczamy nikogo, nawet jeżeli nie jesteś osobą religijną. Jezus szedł do wszystkich ludzi, nikogo nie wykluczał.
